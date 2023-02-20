@@ -1,3 +1,3 @@
 # EIT_SYN
 
-to be upload
+to be uploaded
